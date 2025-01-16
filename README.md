@@ -1,0 +1,1 @@
+# Planilha-e-a-IA
